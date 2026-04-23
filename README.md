@@ -51,11 +51,11 @@ March 1, 2026 – April 7, 2026
 
 ### Interaction with Farmers
 
-![Activity](images/activity1.jpg)
+![Activity](images/activity1.jpeg)
 
 ### Awareness Program
 
-![Activity](images/activity2.jpg)
+![Activity](images/activity2.jpeg)
 
 ---
 
